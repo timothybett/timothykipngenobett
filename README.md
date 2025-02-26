@@ -5,7 +5,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Quantity Surveyor , Project Manager , web developer, enthusiast and Student to life and a child of God.
 -------------------------------------------------------------------------------------------------------
 
-My name is Timothy currently doing my third year in Bachelor in Quantity Surveying and Project Management and have completed several computer based courses . I have experience in website development and AI Prompting Engineering.
+My name is Timothy currently doing my third year in Bachelor in Quantity Surveying in University  of Nairobi and Project Management and have completed several computer based courses . I have experience in website development and AI Prompting Engineering. i learning chinese HSK level 2 at Confiscious Nairobi  University Center and currently doing the IYF comp programming.i love football .
 
 *   🌍  I'm based in Nairobi
 *   ✉️  You can contact me at [tbett1313@gmail](mailto:tbett1313@gmail)
